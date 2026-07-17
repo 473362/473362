@@ -37,3 +37,8 @@ Here are some ideas to get you started:
 
 <img width="1920" height="995" alt="301864d6c73e1ff257c9e43699b7ba00" src="https://github.com/user-attachments/assets/8565c487-cca7-4888-8dbf-969d8f7a2823" />
 长城是墙
+
+&nbsp;
+
+当我玩Deductrium时
+<img width="1066" height="923" alt="image" src="https://github.com/user-attachments/assets/1a675a19-cde3-4acf-989b-12fb2b4621f6" />
